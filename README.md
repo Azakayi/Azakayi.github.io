@@ -1,4 +1,4 @@
-![image](https://github.com/Azakayi/Azakayi.github.io/assets/155250839/807cefec-a000-4900-81a2-60385e9e8627)# For you, my love<3
+# For you, my love<3
 hi !
 
 ## Short letter 
